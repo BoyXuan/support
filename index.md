@@ -1,1 +1,1 @@
-## 技术支持 xuan_services@sina.com
+## 技术支持: xuan_services@sina.com
